@@ -1,1 +1,1 @@
-# .github
+Avada Commerce Pte. Ltd. is an e-commerce solution provider headquater based in Singapore, Sales and development team in the USA and Vietnam where the best developers unite. Founded in 2014, Avada is responsible to complete the mission to help 1 million online businesses grow revenues. Visit us: https://avada.io
